@@ -7,6 +7,8 @@
 
 - 🌱 Tecnólogo en Análisis y Desarrollo de Software. Egresado del SENA.
 
+- 🧑‍🎓 Estudiante de Ingeniería de sistemas.
+
 - 📫 Correo de contacto **mateoherjim18@gmail.com**
 
 - ⚡ Fun fact :- La comida y la música 🎵 son las razones para vivir.
